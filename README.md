@@ -1,16 +1,16 @@
-## Hi there 👋
+![](https://files.catbox.moe/b6p96m.jpeg)
+Your beauty has once again blinded me, 
+Like a misty memory, 
+For every years that shall pass,
+I will return to your arms at last.
 
-<!--
-**dissociatic/dissociatic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+The world is wide and tides are infinite,
+But I shall find my way back to your side,
+For time can never take us,
+A love thats built with trust.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+And when time seeks to take you,
+I will find you through and through,
+And I shall be yours for infinity,
+For my love for you have no limit.
+![](https://files.catbox.moe/jnmy0d.jpeg)
