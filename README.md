@@ -1,4 +1,5 @@
-![](https://files.catbox.moe/b6p96m.jpeg)
+![](https://files.catbox.moe/ma6lsk.jpg)
+-----------
 Your beauty has once again blinded me,    
 Like a misty memory,   
 For every years that shall pass,   
@@ -13,4 +14,6 @@ And when time seeks to take you,
 I will find you through and through,   
 And I shall be yours for infinity,  
 For my love for you have no limit.
-![](https://files.catbox.moe/jnmy0d.jpeg)
+
+----------
+![](https://files.catbox.moe/q2c3h8.jpeg)
