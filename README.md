@@ -11,6 +11,6 @@ A love thats built with trust.
 
 And when time seeks to take you,   
 I will find you through and through,   
-And I shall be yours for infinity, 
+And I shall be yours for infinity,  
 For my love for you have no limit.
 ![](https://files.catbox.moe/jnmy0d.jpeg)
