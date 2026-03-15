@@ -1,6 +1,5 @@
 ![](https://files.catbox.moe/gkjbx3.png)
 Eternal promise | by me
-
 -----------
 Your beauty has once again blinded me,    
 Like a misty memory,   
