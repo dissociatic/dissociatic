@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/ma6lsk.jpg)
+![](https://files.catbox.moe/gkjbx3.png)
 -----------
 Your beauty has once again blinded me,    
 Like a misty memory,   
