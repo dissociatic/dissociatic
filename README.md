@@ -18,3 +18,19 @@ For my love for you have no limit.
 
 ----------
 ![](https://files.catbox.moe/308e3h.jpeg)
+My Will Of Life | By Zhijian
+----
+You have become the will of my life,  
+Amidst the chaos we Shall not strife,  
+For I will find you in every universe i walk upon,  
+For in your arms, I truly belong.  
+
+Have you bewitched my heart I wonder?  
+Because only your love can fill my aching hunger,  
+And only your touch leaves me aching for more,   
+May your touch be enveloped around me forevermore.  
+
+I shall then take Your hands in mine,   
+Through the endless hours of time,  
+I shall stay with our hands aligned,  
+For our love cannot be confined.  
